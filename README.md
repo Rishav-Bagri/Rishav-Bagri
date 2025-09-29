@@ -1,6 +1,10 @@
-- 👋 Hi, I’m @Rishav-Bagri
-- 👀 I’m interested in manwha,manhua and novels.
-- 🌱 I’m currently learning how to code.
+# Rishav this side.
+
+reach out to me
+
+https://www.linkedin.com/in/rishav-bagri-086107305/
+
+
 
 
 <!---
