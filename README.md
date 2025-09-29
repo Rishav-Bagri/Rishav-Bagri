@@ -1,6 +1,6 @@
 # Rishav this side.
 
-reach out to me
+connect with me
 
 https://www.linkedin.com/in/rishav-bagri-086107305/
 
